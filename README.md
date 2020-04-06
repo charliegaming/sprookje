@@ -1,3 +1,3 @@
 # sprookje
 
-Er was eens ...
+Er was eens een koe
